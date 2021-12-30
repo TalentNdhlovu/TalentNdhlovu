@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Talent Ndhlovu
 - 👀 I’m a Web Developer
-- 🌱 I’m currently a Freelancer 
+- 🌱 I’m currently working and freelancing 
 - 💞️ I’m looking to collaborate on a Virtual Life App
 - 📫 You can WhatsApp me on +27810532901
 
